@@ -2,4 +2,4 @@
 
 Hello everyone
 
-DL here, I have very little experience with coding, but have many years with computers, programs and some networking and I have graphic design degree. 
+DL here, I have very little experience with coding, but have always enjoyed what one can do with code. I do have a Graphic Design degree and have always enjoyed computers (especially Macs). 
